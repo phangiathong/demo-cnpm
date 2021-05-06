@@ -1,3 +1,3 @@
 
-Hello. My name is Phan Thong
+Hello. My name is Phan
 
